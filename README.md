@@ -1,4 +1,4 @@
-   Unemployed hobbyist tell me to log off whenever you see me around.          
+   Unemployed hobbyist tell me to log off whenever you see me          
      I don’t speak much i just like being around. however, you can always interact especially if we have commonalities!!                          
     whisper to interact, be nice and patient ^_^                              
 ![IMG_1241](https://github.com/user-attachments/assets/65c63660-3785-47cb-85be-04688e1e52b6)
